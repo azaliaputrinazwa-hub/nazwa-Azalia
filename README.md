@@ -1,2 +1,2 @@
 # nazwa-Azalia
-iy
+ini repostory aku di di GitHub masih beajar tp semangatt 
